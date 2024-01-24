@@ -13,6 +13,6 @@
 [Steak fried rice](https://www.joyousapron.com/steak-fried-rice-3/)  
 [Steak and king oyster mushroom stir fry](http://xhslink.com/3tkHUz)  
 ### Egg
-[Chili oil feta eggs](https://thefoodiediaries.co/2023/04/14/chilli-oil-feta-fried-eggs-recipe/)
+[Chili oil feta eggs]([https://thefoodiediaries.co/2023/04/14/chilli-oil-feta-fried-eggs-recipe/](https://cookingwithayeh.com/crispy-feta-fried-eggs/)https://cookingwithayeh.com/crispy-feta-fried-eggs/)
 
 

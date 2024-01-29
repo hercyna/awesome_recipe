@@ -12,6 +12,7 @@
 [Spicy beef cubes with cumin and potatoes](https://www.xiaohongshu.com/discovery/item/63a2c6d0000000001c005255?app_platform=ios&app_version=8.20&author_share=1&share_from_user_hidden=true&type=normal&xhsshare=WeixinSession&appuid=5e328c94000000000100558c&apptime=1704910253)  
 [Steak fried rice](https://www.joyousapron.com/steak-fried-rice-3/)  
 [Steak and king oyster mushroom stir fry](http://xhslink.com/3tkHUz)  
+[Air fryer bulgogi with eggplants](https://aaronandclaire.com/bulgogi-with-eggplants/#google_vignette)  
 ### Egg
 [Chili oil feta eggs](https://cookingwithayeh.com/crispy-feta-fried-eggs/)
 ### Pasta  
